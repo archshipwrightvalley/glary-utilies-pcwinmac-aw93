@@ -1,4 +1,4 @@
-# 
+# Nativo Glary Utilities plantillas para Mac OS | Actualizado Glary Utilities plantillas para PC Windows. Con impulso de rendimiento y protección con contraseña — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
